@@ -10,7 +10,7 @@ I would like to be in a loving home with my family and friends and loving wife, 
 
 I continue to possess extraordinary wealth from my business portfolio, with millions in the bank, millions in assets and I am constantly investing-in and solving global large-scale problems. 
 
-I love my life, my family and my friends and they love me deeply. Although I possess the skills to do so, I hire the best staff to run areas of my business to ensure that all my business is legally compliant, growing and managed in the best way possible. 
+I love my life, my family and my friends and they love me deeply. Although I possess the skills to do it myself, I hire the best staff to run areas of my business to ensure that all my business is legally compliant, growing and managed in the best way possible. 
 
 ## Strategy
 
